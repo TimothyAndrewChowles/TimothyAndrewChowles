@@ -1,2 +1,2 @@
-👋 Hi, I’m Timothy — AI & Finance major
+👋 Hi, I’m Timothy, AI & Finance major
 
